@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+Welcome!
+
+With growing advancements in technology and communication, it's more important than ever to understand how language develops - and where gaps still exist, especially among lesser-spoken languages.
+
+This account collects and shares insights from surveys focused on language development across diverse communities. Our goal is to highlight patterns, challenges, and unique voices that are often underrepresented.
+
+Whether you're a parent, educator, student, or researcher, we invite you to follow along, explore the data, and be part of the effort to make every language count.
